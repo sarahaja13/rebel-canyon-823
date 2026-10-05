@@ -1,6 +1,6 @@
 # ⬇️ Download Windows 11 Activator for Free — Latest 2026 Version
 
-[![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square)](https://img.shields.io) [![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)](https://img.shields.io) [![Type](https://img.shields.io/badge/Type-Windows Activator-E53935?style=flat-square)](https://img.shields.io)
+![Version](https://img.shields.io/badge/Version-2026-blue?style=flat-square) ![Price](https://img.shields.io/badge/Price-Free-success?style=flat-square)
 
 Download Windows 11 activator for free — the latest 2026 version, tested and working on all current Windows and Office releases. **100% free. No registration. No hidden fees.**
 
